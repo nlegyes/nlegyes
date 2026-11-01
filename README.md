@@ -38,4 +38,4 @@
 
 ## 🏠 Off the clock
 
-Running a homelab, Muay Thai, yoga, running and cooking.
+🏠 Homelab • 🥊 Muay Thai • 🧘‍♂️ Yoga • 🏃‍♂️ Running • 🍳 Cooking
